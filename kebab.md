@@ -1,3 +1,5 @@
+https://thearmeniankitchen.com/lule-kebab-ala-father-vartan-joulfayan/
+
 Minu retsept on üsna klassikaline:
 - sea ja veise hakklihasegu
 - sibul
@@ -8,3 +10,7 @@ Minu retsept on üsna klassikaline:
 Segan hakklihamassi läbi ja jätan ööseks külmkappi.
 Järgmisel päeval võtan hakklihamassi kapist välja vahetult enne grillima hakkamist. See on selleks, et külmast hangunud rasv hakkab paremini kokku ja püsib voolimisel paremini ümber varda.
 Grillimisel võiks varrast pidevalt pöörata, nii küpseb hakklihamass ühtlasemalt ja ei lagune grillil ära.
+
+[Klopitud kurgisalatiga](side/klopitud-kurgisalat.md)
+
+Sildid: Armeenia, Grill
