@@ -5,13 +5,13 @@ Armenian Stuffed Cabbage Leaves Recipe
 ## Ingredients
 * Salt
 * 2 small tender cabbages, cored
-* 2 - 3 cups of beef bone broth or vegetable stock
-* ½ cup tomato paste
-* 1 ½ pounds ground lamb or beef
-* ½ cup white rice
+* 500–750 ml beef bone broth or vegetable stock
+* 130 g tomato paste
+* 680 g ground lamb or beef
+* 90 g white rice
 * 1 small yellow or white onion, finely chopped
-* 2 - 4 cloves of garlic, grated or finely chopped
-* 1 cup of mixed herbs of choice, finely chopped, I like to use parsley, mint, dill, basil and tarragon
+* 2–4 cloves of garlic, grated or finely chopped
+* 30–40 g mixed fresh herbs of choice, finely chopped (I like to use parsley, mint, dill, basil and tarragon)
 * Black pepper
 * 3 small plum tomatoes, cored and quartered
 * 2 bay leaves 
